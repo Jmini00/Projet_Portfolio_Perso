@@ -1,1 +1,1 @@
-![Portfolio](https://github.com/Jmini00/Projet_Portfolio/assets/141427289/46a8f622-1ab4-4673-b42c-d59a0cf706ff)
+![Portfolio](https://github.com/user-attachments/assets/6a85b5eb-241b-4ac9-b8c1-95bd6d68c18d)
